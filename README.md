@@ -19,3 +19,7 @@ Time in Dcc (Shabujbagh)
 1:30 PM
 Monday, June 2, 2020 (GMT+6)
 Time in Dcc (Shabujbagh) 
+
+4:56 PM
+Tuesday, June 2, 2020 (GMT+6)
+Time in Dcc (Shabujbagh) 
