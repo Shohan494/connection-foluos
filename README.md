@@ -46,4 +46,12 @@ Time in Dcc (Shabujbagh)
 
 8:15 PM
 Wednesday, June 3, 2020 (GMT+6)
-Time in Dcc (Shabujbagh) 
+Time in Dcc (Shabujbagh)
+
+4:35 AM
+Thursday, 4 June 2020 (GMT+6)
+Time in Tejgaon Circle, Bangladesh 
+
+2:33 PM
+Thursday, 4 June 2020 (GMT+6)
+Time in Tejgaon Circle, Bangladesh 
