@@ -60,7 +60,10 @@ Time in Tejgaon Circle, Bangladesh
 Friday, 5 June 2020 (GMT+6)
 Time in Tejgaon Circle, Banglade
 
-
 7:15 PM
 Friday, 5 June 2020 (GMT+6)
+Time in Tejgaon Circle, Bangladesh
+
+7:30 PM
+Saturday, 6 June 2020 (GMT+6)
 Time in Tejgaon Circle, Bangladesh
