@@ -67,3 +67,11 @@ Time in Tejgaon Circle, Bangladesh
 7:30 PM
 Saturday, 6 June 2020 (GMT+6)
 Time in Tejgaon Circle, Bangladesh
+
+4:30 AM
+Sunday, June 7, 2020 (GMT+6)
+Time in Dcc (Shabujbagh) 
+
+5:39 PM
+Sunday, June 7, 2020 (GMT+6)
+Time in Dcc (Shabujbagh) 
